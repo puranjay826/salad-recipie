@@ -1,1 +1,1 @@
-this is a healthy fod salad
+this is a healthy food salad
